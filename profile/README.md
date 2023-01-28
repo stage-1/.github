@@ -3,7 +3,7 @@
 
 #### We build speciality enterprise tools for Transportation, Logistics, Warehousing, and similar markets
 
-#### Contact us today to see what solutions we can bring to your table 
+#### Contact us today to see what solutions we'll bring to your table 
 
 
 <!-- ![stage1](https://user-images.githubusercontent.com/114954853/215146874-d60d5027-e1b2-4bc8-9433-582e9600eec4.png)
