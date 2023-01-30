@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 
-#### We build speciality enterprise tools for Warehousing, Transportation, Logistics, Food Storage and similar markets
+#### We build speciality enterprise tools for Warehousing, Transportation, Logistics, Cold Storage Management and similar markets
 
 #### Contact us today to see what solutions we'll bring to your table 
 
